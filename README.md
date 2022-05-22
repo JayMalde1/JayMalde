@@ -1,3 +1,3 @@
 # Jay Malde Profile
 
-https://jaymalde.github.io/JayMalde/
+https://jaymalde1.github.io/JayMalde/
